@@ -6,11 +6,11 @@ Fun fact: I play violin, banjo, ukelele, mandolin, guitar, and harmonica.
 
 Humble Brag: My highest score in bowling is 255.
 
-Top 5 Star Wars the Clone Wars arcs: last 4 episodes of season 7 (goated)
-                                     darkness on Umbara
-                                     inhibitor chips (season 6)
-                                     Ahsoka betrayed by the council
-                                     Mortis 
+Top 5 Star Wars the Clone Wars arcs: last 4 episodes of season 7 (goated),
+                                     darkness on Umbara,
+                                     inhibitor chips (season 6),
+                                     Ahsoka betrayed by the council,
+                                     Mortis. 
                                      
 Life Purpose and Meaning: To know Christ, make Him known, and help others do the same.
 
