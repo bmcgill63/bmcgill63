@@ -1,16 +1,17 @@
 ### Hi there 👋
 
-<!--
-**bmcgill63/bmcgill63** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I’m currently learning about the intricate and multifarious lore in Tolkien's Legendarium, the world of Lord of the Rings.
 
-Here are some ideas to get you started:
+Fun fact: I play violin, banjo, ukelele, mandolin, guitar, and harmonica.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Humble Brag: My highest score in bowling is 255.
+
+Top 5 Star Wars the Clone Wars arcs: last 4 episodes of season 7 (goated)
+                                     darkness on Umbara
+                                     inhibitor chips (season 6)
+                                     Ahsoka betrayed by the council
+                                     Mortis 
+                                     
+Life Purpose and Meaning: To know Christ, make Him known, and help others do the same.
+
+I am fascinated by the metaphysical implications of the intersection between storytelling and music.
